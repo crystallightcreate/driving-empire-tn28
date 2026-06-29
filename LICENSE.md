@@ -1,4 +1,4 @@
-# 
+# driving empire rare Script is the best driving empire Script, featuring one-hit kill and auto-collect. Safe and powerful for all your needs.
 
 
 
